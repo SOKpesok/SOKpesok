@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SOKpesok
-- 📫 How to reach me gavruul322@gmai.com
+- 📫 How to reach me levous@ya.ru
 
 <!---
 SOKpesok/SOKpesok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
